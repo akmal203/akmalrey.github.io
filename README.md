@@ -1,1 +1,0 @@
-# akmalrey.github.io
